@@ -20,4 +20,4 @@
 
 隐私模式浏览，安全无记录，看片更安心。现在立即点击任意入口，体验前所未有的无障碍无码观影之旅！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben66666 ）</span> 
